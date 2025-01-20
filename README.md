@@ -1,1 +1,1 @@
-this is for twitter
+this is for linkdeen
